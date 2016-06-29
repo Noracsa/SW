@@ -2,7 +2,7 @@
 
 Projekt-Thema:
 
-"Welche historischen Persönlichkeiten finden in japanischen Videospielen Erwähnung?" Media:SW Thema.pdf (Arbeitstitel)
+"Welche historischen Persönlichkeiten finden in japanischen Videospielen Erwähnung?" (Arbeitstitel)
 
 Festlegung: japanische Spiele sind Videospiele von japanischen Publishern
 
